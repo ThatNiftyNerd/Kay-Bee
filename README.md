@@ -1,1 +1,1 @@
-# Kay-Bee
+# KAY-BEE pure honey
